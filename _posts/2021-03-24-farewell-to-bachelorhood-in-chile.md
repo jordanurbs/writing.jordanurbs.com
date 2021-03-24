@@ -82,7 +82,7 @@ As the video I'll release next week demonstrates, much of what the demonstration
 
 Meanwhile, much of the intellectual/academic substance likely goes unnoticed by a majority of those protesting for protesting sake, and posters like these get lost in the mix:
 
-<img src="https://writing.jordanurbs.com/https://writing.jordanurbs.com/assets/images/20200220_133134.jpg">
+<img src="https://writing.jordanurbs.com/assets/images/20200220_133134.jpg">
 
 "*Terrorism of the State / Uses police, judicial, and media violence to repress and intimidate those who do not accept the injustices.*" 
 
