@@ -5,7 +5,7 @@ layout: about
 
 <img src="/assets/images/jordan-img.png" alt="Jordan Urbs" height="300" width="300" align="right">
 
-  I'm really into structuring information. I'm really into community networking.
+  I'm really into the phenomenological experience of structuring information. I'm really into community networking.
   
   In recent times I've discovered passion in figuring out the challenges that arise from presenting our human experience within community-brand frameworks. We are stronger together.
 
