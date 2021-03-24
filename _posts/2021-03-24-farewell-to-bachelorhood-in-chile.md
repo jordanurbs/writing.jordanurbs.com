@@ -76,7 +76,7 @@ I've always personally believed that abstaining from giving our hard-earned mone
 
 <img src="https://writing.jordanurbs.com/assets/images/20200221_120823.jpg">
 
-As the video I'll release next week demonstrates, much of what the demonstration has left in its wake is art. But some, like the trademark anarchy "A", is just pure vandalism with no profound substance:
+As the video I'll release next week demonstrates, much of what the demonstration has left in its wake is art. But some, like the trademark anarchy "A", is just pure vandalism with no substance:
 
 <img src="https://writing.jordanurbs.com/assets/images/IMG_20200220_202019.jpg">
 
@@ -126,7 +126,7 @@ I get back to the hostel, pretty beat, and see Chris. "Yo, what happened earlier
 
 "What the f*ck, really? I just ignored you like that?"
 
-My shock is apparent, because he offers that I *had* looked like I was off into space, in my own world. And I had actually been keen on hanging out with him—I was the one who'd invited him, after all. 
+My shock is apparent, because he offers that I *had* looked like I was off into space, in my own world. And I had actually been keen on hanging out with him—I was the one who'd invited him, after all. And something had completely stolen my consciousness away from acknowledging his presence.
 
 We laugh about it and take a walk outside to buy more beer. But inside I am wondering what about that whole situation was meant for me to open my eyes to something, to pay attention? Nothing like that had ever happened to me in my life. I don't ignore people, intentionally or not.
 
@@ -202,7 +202,7 @@ Pretty crazy. In a city of however many millions of people, we were not only din
 
 We eventually say goodbye, no sparks flying, no mutual interest in pursuing this evening further than the restaurant. I soon after received a message in the Uber: "I hope you enjoyed your Indian food," to which I responded that yes I did. The conversation quickly turned oddly passive aggressive, so I asked her directly: "is there something you need to say to me?" She recounted what happened with snooping homeboy in the restaurant, the photo of our food, and my tattoo in the shop. I sat there taken aback, a little nervous. Eventually I asked, "OK, so what's the problem?"--"I thought there was trust between us."
 
-([A Moral Dilemma<img src="https://writing.jordanurbs.com/essays/2020/08/23/moral-dilemma-tt.html)—I recently wrote a blog post about this event digging into the concept of *morality* for my Budokon mobility teacher training. I am of the opinion that this friend of Lau's had stepped completely out of the realm of his business, as in mind your own. You might disagree or agree but either way you can [read my argument here<img src="https://writing.jordanurbs.com/essays/2020/08/23/moral-dilemma-tt.html).)
+(A Moral Dilemma-—I recently wrote a blog post about this event digging into the concept of *morality* for my Budokon mobility teacher training. I am of the opinion that this friend of Lau's had stepped completely out of the realm of his business, as in mind your own. You might disagree or agree but either way you can <a href="https://writing.jordanurbs.com/essays/2020/08/23/moral-dilemma-tt.html">read my argument here</a>.)
 
 And then came one of those conversations that was a lot more twisted over missing context as opposed to actual subject matter. I'll spare you the details but one of those classic misunderstandings where text messaging is actually making it worse. *We'd already talked about this, you know this is* what Jordan does*; there's been no trust breached because I didn't kiss her, I didn't sleep with her, hardly hugged her, not to mention there had not been an opportunity to tell you that the date would happen even if I wanted to. Intention was never dishonest.*
 
