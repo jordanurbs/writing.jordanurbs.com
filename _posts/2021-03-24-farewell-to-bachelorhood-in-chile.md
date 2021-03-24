@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Ch 2.6 - A Farewell to Rambling Bachelorhood Amidst a Chilean Revolution
+title: Ch 2.6 - A Farewell to Rambling Bachelorhood Amidst Chilean Revolution
 date: 2021-03-24
 image: assets/images/20200219_103221.jpg
 categories:
