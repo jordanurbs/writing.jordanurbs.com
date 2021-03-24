@@ -14,8 +14,6 @@ Hello. Last we left off in my 2020 adventure, I was departing a sweaty Cordoban 
 
 I am glad it's finally finished so we can move onto the birth of Aquiles Ananda and the lockdown!
 
-# A Farewell to Rambling Bachelorhood Amidst a Chilean Revolution
-
 ## Alonso
 
 Back in college, I would travel in the summer and then host or entertain travelers as much as I could during spring and fall semesters. It was a good way to stay sane while being stuck in one place, by letting the world come to me. Good friends with the study abroad department, my roommate during my senior year had made it clear that our house was open for arriving students in need of a quick place to stay. It had generally been reserved for Couchsurfers but we were open to anything.
