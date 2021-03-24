@@ -34,9 +34,9 @@ As luck would have it, Alonso was visiting friends and family in Chile during th
 
 From the airport I took a shuttle that drops everyone off in their final destination. Even at night, three words struck out to me as we drove through the city: Revolution. Poetry. Art. Graffiti was all over, entrances to buildings were boarded up. People were outside everywhere in a vibe that was anything but "the day has ended." Mostly I noticed the artisans sitting on the ground selling there wares to passersby of all varieties. The amount of culture packed into this one situation rocked my world, simply from behind the car window.
 
-![assets/images/20200219_103221.jpg](assets/images/20200219_103221.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/20200219_103221.jpg">
 
-![assets/images/20200219_123308.jpg](assets/images/20200219_123308.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/20200219_123308.jpg">
 
 Alonso didn't receive my text in time so I was waited outside for a while scoping out the sights. A few houses down was a beach cantina themed bar blasting contemporary hispanic reggae. It was loud and I wanted to check it out since I was now a beer drinker once again, but there weren't a lot of people there and I didn't want to stand out as a clear tourist gringo (despite my long hair, beard, and general grizzle that normally fits me right in with the modern back-to-the-land hippie revolutionary vibe). Alonso finally came to find me and let me into the apartment complex. From his balcony, I could see that the reggae bar but was one of many. Over the next couple nights, I would hear this fact as well, spanning all hours of the night. The afternoon-to-evening restobars were about 2 blocks down to our southeast, the evening-to-night establishments like the reggae bar were on all sides, and the night-to-morning nightclubs seemed to happen literally right outside my bedroom window. After a few white wines and catch up with Alonso on that first night, I slept to background ambiance of Ke$ha and Katy Perry remixes. 
 
@@ -52,13 +52,13 @@ Santiago has an energy that I suppose I would compare to Buenos Aires or even a 
 
 Like many cool cities, it's busy and alive with its crockpot dichotomy of clean/corporate and raw/real-life. It was especially unique for me to see banks boarded up for protection and Starbucks destroyed with anti-capitalist graffiti. I imagine there were tourists there around this time that saw a more traditional side of Chilean tourism. But me, all I could see was *la revolucíon* reminiscent of all the social uprisings that took place throughout 20th century Latin America. It was powerful. I think I can better tell the story of my experience in Chile during this particular era of its history with photos and video:
 
-![assets/images/20200219_134019.jpg](assets/images/20200219_134019.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/20200219_134019.jpg">
 
-![assets/images/20200220_133332.jpg](assets/images/20200220_133332.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/20200220_133332.jpg">
 
-![assets/images/20200219_134403.jpg](assets/images/20200219_134403.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/20200219_134403.jpg">
 
-"Until living is worth it!"
+"*Until living is worth it!*"
 
 ### What's the revolution for, anyway?
 
@@ -66,35 +66,35 @@ By looking at the art, you'd probably think it had something to do with ending c
 
 I won't pretend that I understood the politics or currency inflation exactly, but two examples of note were a significant drop in retirement pension funds and a significant rise in the ticket price of the Metro system. Two examples of the myriad transformations negatively affecting people's livelihoods, young and old and everyone in between that isn't in the upper class. (My very shallow and basic understanding sorted out from my random collection of sources including Alonso, Uber drivers, fellow travelers, and hostel workers I would meet.
 
-![assets/images/20200222_125833.jpg](assets/images/20200222_125833.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/20200222_125833.jpg">
 
-![assets/images/20200219_123322.jpg](assets/images/20200219_123322.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/20200219_123322.jpg">
 
-When the last river dries and the last tree disappears will you finally understand that you can't eat money!
+"*When the last river dries and the last tree disappears will you finally understand that you can't eat money!*"
 
 I've always personally believed that abstaining from giving our hard-earned money to [big] businesses that contribute to the world being such a fucked up place is a better solution than violence or destruction such as what I saw in Santiago (except when you need clothes at H&M, of course). But I suppose in a pre-Bitcoin world there is no escaping banks for those that need a place to store money, and it's even harder for a coffee drinker to avoid a Starbucks some times, especially when they've run the local cafes all out of business. So maybe the rampant disregard for property that took place during the protests has a bit of merit. This isn't my culture and it isn't my business how they choose to carry out their revolution. In any case, it's inspiring to see such passion alive in the art on the sidewalks.
 
-![assets/images/20200221_121558.jpg](assets/images/20200221_121558.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/20200221_121558.jpg">
 
-![assets/images/20200221_120823.jpg](assets/images/20200221_120823.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/20200221_120823.jpg">
 
 As the video I'll release next week demonstrates, much of what the demonstration has left in its wake is art. But some, like the trademark anarchy "A", is just pure vandalism with no profound substance:
 
-![assets/images/IMG_20200220_202019.jpg](assets/images/IMG_20200220_202019.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/IMG_20200220_202019.jpg">
 
 Meanwhile, much of the intellectual/academic substance likely goes unnoticed by a majority of those protesting for protesting sake, and posters like these get lost in the mix:
 
-![assets/images/20200220_133134.jpg](assets/images/20200220_133134.jpg)
+<img src="https://writing.jordanurbs.com/https://writing.jordanurbs.com/assets/images/20200220_133134.jpg">
 
 "*Terrorism of the State / Uses police, judicial, and media violence to repress and intimidate those who do not accept the injustices.*" 
 
 The people had been demonstrating publicly since October 2019. Right now the movement was "asleep" until the weather cooled down in April or so. This is a shot taken during one of the "off-season" protests. I didn't go, mostly because I was going to be a father soon and this wasn't my fight (indeed, the protesting faction had their own hospital in the university library, off-limits to police), but you can see the energy that did indeed lead to some smoke bombs, tear gas, and physical conflict that Friday afternoon:
 
-![assets/images/IMG-20200221-WA0012.jpg](assets/images/IMG-20200221-WA0012.jpg)
+<img src="https://writing.jordanurbs.com/assets/images/IMG-20200221-WA0012.jpg">
 
 Here's an aerial view in its heyday from Wikipedia:
 
-![assets/images/Untitled.png](assets/images/Untitled.png)
+<img src="https://writing.jordanurbs.com/assets/images/Untitled.png)
 
 Something about the energy in the air made me like I was home. Like all the coolest latin American travelers I had met over the years were all here, united with a cause and unified by street art, drum circles, and common circumstance. As I saw it, these were people that shared my values and were actually living them out instead of just fantasizing and writing fiction about it. 
 
@@ -204,7 +204,7 @@ Pretty crazy. In a city of however many millions of people, we were not only din
 
 We eventually say goodbye, no sparks flying, no mutual interest in pursuing this evening further than the restaurant. I soon after received a message in the Uber: "I hope you enjoyed your Indian food," to which I responded that yes I did. The conversation quickly turned oddly passive aggressive, so I asked her directly: "is there something you need to say to me?" She recounted what happened with snooping homeboy in the restaurant, the photo of our food, and my tattoo in the shop. I sat there taken aback, a little nervous. Eventually I asked, "OK, so what's the problem?"--"I thought there was trust between us."
 
-([A Moral Dilemma](https://writing.jordanurbs.com/essays/2020/08/23/moral-dilemma-tt.html)—I recently wrote a blog post about this event digging into the concept of *morality* for my Budokon mobility teacher training. I am of the opinion that this friend of Lau's had stepped completely out of the realm of his business, as in mind your own. You might disagree or agree but either way you can [read my argument here](https://writing.jordanurbs.com/essays/2020/08/23/moral-dilemma-tt.html).)
+([A Moral Dilemma<img src="https://writing.jordanurbs.com/essays/2020/08/23/moral-dilemma-tt.html)—I recently wrote a blog post about this event digging into the concept of *morality* for my Budokon mobility teacher training. I am of the opinion that this friend of Lau's had stepped completely out of the realm of his business, as in mind your own. You might disagree or agree but either way you can [read my argument here<img src="https://writing.jordanurbs.com/essays/2020/08/23/moral-dilemma-tt.html).)
 
 And then came one of those conversations that was a lot more twisted over missing context as opposed to actual subject matter. I'll spare you the details but one of those classic misunderstandings where text messaging is actually making it worse. *We'd already talked about this, you know this is* what Jordan does*; there's been no trust breached because I didn't kiss her, I didn't sleep with her, hardly hugged her, not to mention there had not been an opportunity to tell you that the date would happen even if I wanted to. Intention was never dishonest.*
 
