@@ -138,6 +138,8 @@ We meet up at the only local cafe that has gluten free pastries and I sip on yer
 
 He ends up taking some shots of me sitting on some beachside rocks and walks me to the bus station to return to Santiago. We share a big hug and I bid farewell to the first solid connection I'd made here.
 
+<img src="https://writing.jordanurbs.com/assets/images/photo_2020-02-21_19-13-29.jpg">
+
 ## Self-Exploration, Companionship
 
 I introduced the concepts of my complex love life last time, so I'll skip the rhetoric. In a nutshell: *I never sought out the comfort of monogamy in life but I wanted deep companionship; Lau accepts me for both so I am curious about the true nature of these desires and non-traditional, non-conformist tendencies. What is the authentic part of my nature and what may be a contrasting story I tell myself?*
