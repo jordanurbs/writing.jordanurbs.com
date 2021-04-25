@@ -79,7 +79,6 @@ Suffice to say, it was a rough morning after a long night. We'd arrived at midni
 
 But what could I have done? It's something I ponder frequently, and have learned not to judge myself for. We were (and are) doing the best we can for the kid... there's not much more we can control, as Argentina's lockdown will demonstrate to us in short order.
 
-<iframe width="560" height="315" sandbox="allow-same-origin allow-scripts allow-popups" src="https://perceptiontravel.tv/videos/embed/3e9f9288-7f5b-4c17-956d-43e0a124ea39" frameborder="0" allowfullscreen></iframe>
-
 Here's a little video of our baby shower and the birth: 
-<a href="https://perceptiontravel.tv/videos/watch/3e9f9288-7f5b-4c17-956d-43e0a124ea39"><img src="https://writing.jordanurbs.com/assets/images/thumb.png"></a>
+
+<iframe width="560" height="315" sandbox="allow-same-origin allow-scripts allow-popups" src="https://perceptiontravel.tv/videos/embed/3e9f9288-7f5b-4c17-956d-43e0a124ea39" frameborder="0" allowfullscreen></iframe>
