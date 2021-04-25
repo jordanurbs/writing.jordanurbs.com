@@ -8,10 +8,9 @@ categories:
 tags:
   - argentina2020
 ---
+We have finally arrived home in California. It was a long year, for reasons beyond the obvious. The political-economic-social crises triggered by the pandemic hit a lot more close-to-home for everyday living in South America but, while tough at times, sticking it out in Argentina was an ironic blessing of an experience for someone who has traveled the world craving unique experiences since he was 18 years old.
 
 <img src="/assets/images/jordanlau.jpg">
-
-We have finally arrived home in California. It was a long year, for reasons beyond the obvious. The political-economic-social crises triggered by the pandemic hit a lot more close-to-home for everyday living in South America but, while tough at times, sticking it out in Argentina was an ironic blessing of an experience for someone who has traveled the world craving unique experiences since he was 18 years old.
 
 At first I thought I would write a book of memoirs about the year there. Inspired by not only the multidimensional Argentine culture that I was affected by, but the pandemic itself demonstrated a side of that place that I could never have imagined even if I tried. Add to that being brand new parents, without our parents to guide and support us, lacking all control over our environment, and maybe you have an engaging story.
 
