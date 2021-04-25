@@ -9,7 +9,7 @@ tags:
   - argentina2020
 ---
 
-<img src="../assets/img/jordanlau.jpg">
+<img src="/assets/images/jordanlau.jpg">
 
 We have finally arrived home in California. It was a long year, for reasons beyond the obvious. The political-economic-social crises triggered by the pandemic hit a lot more close-to-home for everyday living in South America but, while tough at times, sticking it out in Argentina was an ironic blessing of an experience for someone who has traveled the world craving unique experiences since he was 18 years old.
 
@@ -22,7 +22,7 @@ So I thought hell, let’s just make it a blog/newsletter for now and see where 
 From here on out, I’ll focus my words on single subjects with anecdotes like what Argentina can be like and the struggles I encountered as a North American, a couple experiencing their first pregnancy during a lockdown, crossing town for family dinners while evading trouble in a pandemic police state, entrepreneurship from abroad and getting money into one of the most financially closed-off countries in the world, cross-country road trips with a six-month-old for visits to the U.S. embassy, and a whole lot more. 
 As a therapeutic act of reflection for me, I’ll share with you our story. As a storyteller and artist, I’ll embellish the text with pictures and videos as best as I can. And as someone wishing to connect with you reading this, I’ll receive your questions, comments, or anything else with open arms.
 
-<img src="../assets/img/laujordan.jpg">
+<img src="/assets/images/laujordan.jpg">
 
 ## How We Ended Up In Argentina For A Pandemic, Pregnant
 Lau and I met in Buenos Aires in early 2019. After a decade of rambling (slash searching for purpose) and experimenting in relationships (seeking companionship) it arrived as an unaccepted surprise that we got along so well. It was so easy after so many years of struggling. Despite the longevity of my “search,” I fought it, and fought myself, until something clicked and I finally allowed myself to love and be loved by her. 
@@ -35,7 +35,7 @@ Suffice to say, despite the extra energy and effort required to raise a human, w
 
 That’s how I saw it, anyway.
 
-<img src="../assets/img/jorlauscotland.jpg">
+<img src="/assets/images/jorlauscotland.jpg">
 Fast-forward to the end of 2019. By that time we had traveled together through exotic sights of the world on three different continents. We’d driven through Patagonia to shoot a pitch for a travel series, camped out in a moving van in the Scottish Highlands, traversed the Mediterranean from Venice to Aix via train, bus and automobile, and explored the Pacific beaches of Portugal. We went  on sunset walks through suburban Los Angeles before seeking out plant medicines in the Andes and gluten-free pastries in Cordoba. 
 All throughout, we considered our options for raising a child and starting a family in each place. Lau has Italian citizenship and this opens up our options considerably. For over a decade I’d been attached to the idea that I would never settle in suburban California—in fact for the past few years I’ve had my sights set on the Big Island of Hawaii—but just to be safe, we began the application process for Lau’s K-1 Fiance Visa to obtain her green card. It was a lot of paperwork and what I considered to be silly bureaucracy, but I enjoyed the organizational aspect of the task and some parts of it felt good to feel a part of “the system” again after so long.
 
@@ -48,7 +48,7 @@ The only bummer was that we would have to return to Argentina for her official i
 On January 5, 2020, we had a big celebration. Partly to see my loved ones and bid them farewell for now, partly to welcome Lau to the family, partly to celebrate the upcoming baby boy. Loved ones from all over came to dance, sing, eat and be merry with our assortments of awkward, interactive ceremonies (I always thought weddings were too staged and weird). 
 
 <a href="https://perceptiontravel.tv/videos/watch/9365c189-5480-4faa-8558-91fcd681e5c0" target="blank" name="video">
-<img src="../assets/img/lovingunion.png"></a>
+<img src="/assets/images/lovingunion.png"></a>
 
 It was a touching way to go out. We could not have felt more connected and loved by our tribe here in southern California. By late that night, after a night of CBD joints and champagne, synchronized dancing games under a waxing moon, an afternoon of friends and family eating rich Ethiopian, Jamaican, Mexican, Italian and Argentine dishes, ceremonially sharing brewed kava root and homemade lemonade with lemons straight from our garden, a ceremonial fire burning bright; after the guests had all gone away, an uneasy feeling swam through my stomach. Lau slept calmly, her breathing the soft rhythm of the high tide, as my body floated peacefully in the bliss rendered of such celebration with my people. Yet a strong intuition deep in my gut was paddling closer, making just enough of a splash amidst the ripples of such a heart-opening day, to urge me to close my eyes and listen…
 Something was telling me it would all be fine if we didn’t go back to Argentina for the birth. 
