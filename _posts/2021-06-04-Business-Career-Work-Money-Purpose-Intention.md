@@ -2,7 +2,7 @@
 layout: post
 title: Ch 4.1 - Business and "Career"... Work, Money, Purpose, Intention
 date: 2021-06-04
-image: /assets/images/filmmaker.jpg
+image: 
 categories:
   - argentina2020
 tags:
