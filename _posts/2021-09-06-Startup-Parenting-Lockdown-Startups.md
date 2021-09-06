@@ -55,7 +55,7 @@ Me, I use simply a water bottle with my mate and thermos. I prop up my computer 
 
 Suffice to say, the newborn could sleep through a train roaring through the house, so it was no problem putting the sleeping Aquiles down in between our workspaces throughout the afternoon. (If you thought I was a hippy concerned with radioactive frequencies from electronic devices, now you know better.) Oh, how we would soon miss those days of easy naps.
 
-<img src="https://writing.jordanurbs.com/assets/images/Screen_Shot_2021-09-05_at_4.02.08_PM.png">(
+<img src="https://writing.jordanurbs.com/assets/images/Screen_Shot_2021-09-05_at_4.02.08_PM.png">
 
 But sometimes I had calls and livestreams, so Lau would go upstairs to the desk. We got creative with his napspace, there.
 
