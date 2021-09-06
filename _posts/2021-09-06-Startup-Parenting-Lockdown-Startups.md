@@ -89,6 +89,6 @@ More on all that later, though. Point of the story, is I think we make a good te
 
 As government restrictions raged on, and we dreamt of our home, and this beautiful baby boy started to perceive the reality surrounding him guided by these two compañeros, we continued to dedicate hours per day to our work projects. Lau less than I, of course, but I had never imagined such a hard-working post-partum human female... she got more done around the house and with her business than I suspect most women would care to bother with. She continues to impress me even today, as she is pregnant again and still kicking ass.
 
-Thanks for reading!
+Thanks for reading! Tune in next time as we talk about lockdown family time and sneaking through side streets to get to Sunday luncheons.
 
 Jordan
